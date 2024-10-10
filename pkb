@@ -1,3 +1,0 @@
-Flamengo
-Goleiro gk
-Arrascaeta
